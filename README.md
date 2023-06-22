@@ -1,6 +1,6 @@
-- 👋 Hey! I’m @love-adu, thanks for visting! Find me here, or here, or here, or maybe over there.
-- 📖 COO of Tinted Pages - nonprofit dedicated to spreading access to the literary career field to LGBTQ and POC youth.
-- 🌱 I’m currently studying sociology at UC Berkeley. Go Bears!
+- 👋 Hey! I’m @love-adu, thanks for visting! Find me here, or there, or anywhere.
+- 📖 COO of Tinted Pages - a nonprofit dedicated to spreading access into the literary career field to LGBTQ and POC youth.
+- 🧸 I’m currently studying sociology at UC Berkeley. Go Bears!
 - 🛼 Check out my routines at competitions! (I compete in solo roller dance for Team USA!)
 - 🗺️ Play against me - I play GeoGuessr competitively :))
 - 👀 I’m interested in sociology, social psychology, critical social theory, philosophy, rhetoric, and anthropology.
