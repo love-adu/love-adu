@@ -2,6 +2,7 @@
 - 📖 COO of Tinted Pages - nonprofit dedicated to spreading access to the literary career field to LGBTQ and POC youth.
 - 🌱 I’m currently studying sociology at UC Berkeley. Go Bears!
 - 🛼 Check out my routines at competitions! (I compete in solo roller dance for Team USA!)
+- 🗺️ Play against me - I play GeoGuessr competitively :))
 - 👀 I’m interested in sociology, social psychology, critical social theory, philosophy, rhetoric, and anthropology.
 - 💞️ I’m looking to expand my creative literary skills,as well as my anthropological perspectives on life and my research.
 - 🦾 My published research can be found here.
